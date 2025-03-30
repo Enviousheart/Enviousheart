@@ -1,7 +1,10 @@
 ## Hi there 👋
 
 <!-- 
-I am a female from China,, and I am currently opening up commissions for Pony town skins, and profile comms, 
+I am a female from China,, 
+and I am currently opening 
+up commissions for Pony town skins,
+and profile comms, 
 
 ⟡ ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘ ⟡
 Here are some ideas to get you started:
