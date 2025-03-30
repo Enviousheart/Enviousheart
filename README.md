@@ -1,8 +1,9 @@
 ## Hi there 👋
 
-<!--
-**Enviousheart/Enviousheart** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<!-- 
+I am a female from China,, and I am currently opening up commissions for Pony town skins, and profile comms, 
 
+⟡ ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘ ⟡
 Here are some ideas to get you started:
 
 - 🔭 I’m currently working on ...
