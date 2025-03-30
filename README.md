@@ -16,8 +16,7 @@ have multiple names, including Via,
 or Vivi,, you can call me anything,
 like a nickname would 
 be nice as well. I am 20years old, 
-my Discord is in my bio, linked, 
-and also is my insta. 
+my Tiktok is in my bio. 
 
   我的账户一直连接到enviousheart 在 ponytown                    ↘︎-------╮
 继续阅读   <3           ↓
