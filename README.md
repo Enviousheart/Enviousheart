@@ -1,20 +1,19 @@
-## Hi there 👋
-
-<!-- 
-I am a female from China,, 
+# Hi there !! 
+ 
+𓏵𓏵 . I am a female from China,, 
 and I am currently opening 
 up commissions for Pony town skins,
-and profile comms, 
+and profile comms. 
 
-⟡ ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘ ⟡
-Here are some ideas to get you started:
+⟡ ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘ ⟡
+I usually go by Envy, but I 
+have multiple names, including Via, 
+or Vivi,, you can call me a
+nything, like a nickname would 
+be nice as well. I am 20years old, 
+my Discord is in my bio, linked, 
+and also is my insta. 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+If you want to contact me, my 
+socials will be linked in my account bio. 
+thank you for reading!! 𓏵𓏵 . . 
